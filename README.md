@@ -4,7 +4,7 @@
 
 - 🎓 Sinh viên ngành **Bảo đảm An toàn Thông tin**
 - 🎂 Tuổi: **21**
-- 🏡 Quê quán: **Quảng Nam, Việt Nam**
+- 🏡 Quê quán: **Đà Nẵng, Việt Nam**
 - 💼 Mong muốn trở thành **_______**
 
 ## 💡 Kỹ năng
